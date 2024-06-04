@@ -1,2 +1,1 @@
-## **(PRESIDENT-MD)**
-https://president-md-qr-generater-b83598fb3345.herokuapp.com/
+## © Mᴀᴄᴛʀɪx - 2024 : 766632281
